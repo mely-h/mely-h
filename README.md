@@ -1,5 +1,5 @@
 <h1 align="center">Hello les gens , je m'appele melissa , 21 ans au compteur</h1>
-- Je suis etudiante au sein de l'indétornable **ecole fr Leonard de vinci "iim"**
+- Je suis etudiante au sein de l'indétornable **ecole Leonard de vinci "IIM"**
 
 - Je suis une passionée des sports aquatiques, des voyages et surtout LA BOUFFE
 
