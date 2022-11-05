@@ -3,9 +3,6 @@
 
 - Je suis une passionée des sports aquatiques, des voyages et surtout LA BOUFFE
 
-- pour me contacter **hanoutimely16@gmail.com**
-
-
 <p align="left">
 </p>
 
